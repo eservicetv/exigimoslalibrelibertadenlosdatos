@@ -28,7 +28,7 @@ Una vez que recibe un aviso completo y correcto de la reclamación de infracció
 (b) Para notificar al proveedor de contenido, miembro o usuario que ha eliminado o deshabilitado el acceso al contenido; y
 (c) Terminar en circunstancias apropiadas los suscriptores y titulares de cuentas que sean infractores reincidentes.
 
-FutbolLibre.net respects the intellectual property of others. FutbolLibre.net takes
+MundialTvDigital.com respects the intellectual property of others. MundialTvDigital.com takes
 
 matters of Intellectual Property very seriously and is committed to meeting the needs of content owners
 
@@ -36,7 +36,7 @@ while helping them manage publication of their content online.
 
 
 
-It should be noted that FutbolLibre.net is a simple search engine of videos available at a
+It should be noted that MundialTvDigital.com is a simple search engine of videos available at a
 
 wide variety websites.
 
